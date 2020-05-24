@@ -17,4 +17,4 @@
 
 #### André Alcantara de Melo Pimentel:
 
- **Email:** a.pimentel10.ap@@gmail.com
+ **Email:** a.pimentel10.ap@gmail.com
